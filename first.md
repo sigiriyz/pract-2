@@ -8,3 +8,6 @@
 d gtnth,ehut vbcnbxtcrfz rdfhnbhf yf[jlbncz yf **itcnjv** 'nf;t **itnyflwfnb'nf;yjuj** ljvf
 ---
 ## успеем
+1. увидеть красоты 'бархаьного Сочи'
+2. коснуться изумрудных вод байкала
+3. потеряться в череде **_белых_** ночей без сна
